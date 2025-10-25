@@ -1,2 +1,2 @@
 # meat-export
-Bilingual meat wholesale website | Beef, Pork, Chicken, Kid &amp; Adult Goat
+Multilingual frozen meat wholesale website | Export-ready Kid & Adult Goat, Beef, Pork, Chicken, 
